@@ -1,1 +1,0 @@
-# aminul-CV
